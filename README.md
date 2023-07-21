@@ -1,1 +1,1 @@
-I've tried to solve the project and submitted as far I\'92ve come. I reached out to student care and they didn\'92t get me extra days to solve the project. I will keep on working and hopefully get the project completely ready soon\
+I've tried to solve the project and submitted as far I\'ve come. I reached out to student care and they didn't get me extra days to solve the project. I will keep on working and hopefully get the project completely ready soon\
